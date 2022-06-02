@@ -1,4 +1,4 @@
-# We Are Knights. WE Fight F0r Honor. 
+# We Are Knights. We Fight F0r Honor. 
 # We Fight For Justice........
 
-#Knight squad
+#Knight squad :)
